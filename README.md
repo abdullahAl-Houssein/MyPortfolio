@@ -1,1 +1,1 @@
-# Portfolio
+My personal portfolio showcases my professional journey, highlighting a diverse range of projects and skills. Explore my previous and current works, and discover the tools and technologies I've utilized to bring them to life. From web development to design, my portfolio reflects my expertise and passion for creating meaningful experiences. Get in touch to learn more or discuss potential collaborations
